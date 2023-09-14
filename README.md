@@ -1,1 +1,3 @@
-# tecnologia6b
+Equipe# tecnologia6b
+
+Professora Jozi Oliveira
